@@ -1,0 +1,2 @@
+# fabiooscloudcomputeropenaimetagooglemicrosoftelite
+Sistema operacional na nuvem ia integrada corporativo global
